@@ -1,5 +1,7 @@
 # can-bitcoin-bring-palestine-freedom-
 Tradução para PT-BR
+
+
 Can Bitcoin Bring Palestine's Currency of Freedom?
 Bitcoin gives Palestinians a powerful avenue for peaceful protest, and the opportunity to find sovereignty among oppressive economic policies.
 ALEX GLADSTEIN - JUL 22, 2021
@@ -536,4 +538,3 @@ He said their calculation was the following: Real estate is “going to zero” 
 But if bitcoin continues on its historical trajectory and gains value versus fiat currencies? “Then we have a door to freedom.”
 
 “I’m saving up for my kids,” he said, right before we hang up. “Bitcoin is going to be my ticket out of here.”
-
