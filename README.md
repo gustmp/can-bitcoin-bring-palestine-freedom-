@@ -16,7 +16,7 @@ Ele falou sobre estradas destruídas, edifícios pulverizados, cortes de energia
 
 Uqab me pediu para considerar o quão ruim as coisas estão economicamente ao redor do mundo, até mesmo nos EUA, por causa da pandemia e dos lockdowns que se seguiram, e disse: “Agora imagine como tem sido para nós”.
 
-I. A CHECKPOINT THAT’S ALWAYS OPEN
+I. Um checkpoint que está sempre aberto
 The Gaza Strip is a piece of territory roughly five miles wide and 28 miles long, sandwiched between Israel’s southwestern corner, the Egyptian Sinai, and the Mediterranean Sea. Originally the site of a Palestinian community flooded by refugees fleeing from what is now Israel after the 1948 Arab-Israeli War, it is today one of the most densely populated places on earth. Gaza is less than half of the size of Austin, Texas, but has more than twice its population. Think Hong Kong, but besieged in a desert, with crumbling infrastructure.
 
 Over the past four decades, the two million inhabitants — half of them under the age of 18 — have suffered from a near-total civilizational collapse.
