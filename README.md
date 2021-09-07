@@ -1,13 +1,14 @@
 # can-bitcoin-bring-palestine-freedom-
-CAN BITCOIN BE PALESTINE’S CURRENCY OF FREEDOM?
-Bitcoin gives Palestinians a powerful avenue for peaceful protest, and the opportunity to find sovereignty among oppressive economic policies.
-ALEX GLADSTEIN - JUL 22, 2021
+Bitcoin será a moeda da liberdade palestina?
+O Bitcoin dá aos palestinos um pacífico e poderoso meio de protesto, além da oportunidade de encontrar soberania em meio a políticas econômicas opressivas.
 
-One day last week I spoke to a Bitcoin user inside the Gaza Strip.
+Alex Gladstein - 22 de julgo de 2021
 
-He asked to remain anonymous and go by the name Uqab — the Arabic word for “eagle” — as he took a large personal risk to talk to me.
+Na semana passada conversei com um bitcoinheiro que vive na Faixa de Gaza.
 
-We spoke on Telegram and had to time our call, as Uqab only has a few hours of electricity per day. For him, our chat was in the middle of the night. A Palestinian friend helped translate the call live. As we spoke, it was hard to fathom what life was like on the other end of the line.
+Ele me pediu para se manter anônimo e portanto o chamarei de “Uqab” - árabe para águia - já que ele tomou um enorme risco pessoal ao vir conversar comigo.
+
+Eu e Uqab conversamos pelo Telegram e tivemos que cronometrar nossa chamada já que ele tem poucas horas de eletricidade por dia. Para ele, nossa conversa foi no meio da noite. Um amigo palestino ajudou, ao vivo, a traduzir a chamada. Enquanto conversávamos, era difícil imaginar como era a vida do outro lado da linha.
 
 Uqab was talking to us from Rafah, a city in the southern part of Gaza, a war zone only a few weeks removed from being heavily bombed by the Israeli military. I felt like I was speaking to someone from a different planet.
 
