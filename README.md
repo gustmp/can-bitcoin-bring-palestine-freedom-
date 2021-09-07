@@ -2,7 +2,7 @@
 Bitcoin será a moeda da liberdade palestina?
 O Bitcoin dá aos palestinos um pacífico e poderoso meio de protesto, além da oportunidade de encontrar soberania em meio a políticas econômicas opressivas.
 
-Alex Gladstein - 22 de julgo de 2021
+Alex Gladstein - 22 de julho de 2021
 
 Na semana passada conversei com um bitcoinheiro que vive na Faixa de Gaza.
 
@@ -10,11 +10,11 @@ Ele me pediu para se manter anônimo e portanto o chamarei de “Uqab” - árab
 
 Eu e Uqab conversamos pelo Telegram e tivemos que cronometrar nossa chamada já que ele tem poucas horas de eletricidade por dia. Para ele, nossa conversa foi no meio da noite. Um amigo palestino ajudou, ao vivo, a traduzir a chamada. Enquanto conversávamos, era difícil imaginar como era a vida do outro lado da linha.
 
-Uqab was talking to us from Rafah, a city in the southern part of Gaza, a war zone only a few weeks removed from being heavily bombed by the Israeli military. I felt like I was speaking to someone from a different planet.
+Uqab falava conosco de Rafah, cidade ao sul de Gaza, uma zona de guerra, algumas semanas depois de ser fortemente bombardeada por militares israelenses. Era como se estivesse falando com alguém de outro planeta.
 
-He spoke of roads destroyed, buildings vaporized, power cut and supplies restricted. A map of Israeli missile strikes makes Gaza look like Swiss cheese, and gives a sense of the structural damage.
+Ele falou sobre estradas destruídas, edifícios pulverizados, cortes de energia e restrição de suprimentos. Um [mapa](https://coscher510.users.earthengine.app/view/gazabombing) dos ataques de mísseis israelenses faz Gaza parecer um queijo suíço e dá uma ideia dos danos estruturais.
 
-Uqab asked me to consider how bad things have been economically around the world, even in the U.S., because of the pandemic and ensuing lockdowns, and said, “Now imagine what it’s been like for us.”
+Uqab me pediu para considerar o quão ruim as coisas estão economicamente ao redor do mundo, até mesmo nos EUA, por causa da pandemia e dos lockdowns que se seguiram, e disse: “Agora imagine como tem sido para nós”.
 
 I. A CHECKPOINT THAT’S ALWAYS OPEN
 The Gaza Strip is a piece of territory roughly five miles wide and 28 miles long, sandwiched between Israel’s southwestern corner, the Egyptian Sinai, and the Mediterranean Sea. Originally the site of a Palestinian community flooded by refugees fleeing from what is now Israel after the 1948 Arab-Israeli War, it is today one of the most densely populated places on earth. Gaza is less than half of the size of Austin, Texas, but has more than twice its population. Think Hong Kong, but besieged in a desert, with crumbling infrastructure.
