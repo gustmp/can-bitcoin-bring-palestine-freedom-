@@ -1,5 +1,5 @@
 # can-bitcoin-bring-palestine-freedom-
-Can Bitcoin Bring Palestine's Currency of Freedom?
+CAN BITCOIN BE PALESTINE’S CURRENCY OF FREEDOM?
 Bitcoin gives Palestinians a powerful avenue for peaceful protest, and the opportunity to find sovereignty among oppressive economic policies.
 ALEX GLADSTEIN - JUL 22, 2021
 
