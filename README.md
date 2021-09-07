@@ -16,10 +16,11 @@ Ele falou sobre estradas destruídas, edifícios pulverizados, cortes de energia
 
 Uqab me pediu para considerar o quão ruim as coisas estão economicamente ao redor do mundo, até mesmo nos EUA, por causa da pandemia e dos lockdowns que se seguiram, e disse: “Agora imagine como tem sido para nós”.
 
-I. Um checkpoint que está sempre aberto
-The Gaza Strip is a piece of territory roughly five miles wide and 28 miles long, sandwiched between Israel’s southwestern corner, the Egyptian Sinai, and the Mediterranean Sea. Originally the site of a Palestinian community flooded by refugees fleeing from what is now Israel after the 1948 Arab-Israeli War, it is today one of the most densely populated places on earth. Gaza is less than half of the size of Austin, Texas, but has more than twice its population. Think Hong Kong, but besieged in a desert, with crumbling infrastructure.
+*I. Um checkpoint que está sempre aberto
 
-Over the past four decades, the two million inhabitants — half of them under the age of 18 — have suffered from a near-total civilizational collapse.
+A Faixa de Gaza é um pedaço de terra com cerca de 8km de largura e 45km de comprimento, espremida entre o canto sudoeste de Israel, a península de Sinai e o Mar Mediterrâneo. Originalmente, local de uma comunidade palestina inundada por refugiados que fugiam do que hoje é Israel após a guerra árabe-israelense de 1948, é hoje um dos lugares mais densamente povoados do planeta. O território de Gaza tem a metade do tamanho da cidade de Austin, Texas, mas tem mais do que o dobro de sua população. É como se fosse Hong Kong, num deserto, com uma infraestrutura em ruínas.
+
+Nas últimas quatro décadas, seus dois milhões de habitantes - metade deles com menos de 18 anos - sofreram com um colapso civilizacional quase total.
 
 In 2006, Hamas — which was founded on a mission to destroy Israel and does not recognize its right to exist — won the Palestinian elections, in what was widely seen as a protest vote against the extreme corruption and ineptitude that the ruling Fatah party had displayed in the 12 years since the creation of the Palestinian Authority. The elections were not deemed legitimate by many international actors — the U.S. and EU, for example, consider Hamas a terrorist group — and Fatah clung to power in the West Bank. Gazans, meanwhile, fell under the dictatorial rule of an Islamist police state. In retaliation, in 2007 the Israeli and Egyptian governments closed off Gaza from the outside world.
 
