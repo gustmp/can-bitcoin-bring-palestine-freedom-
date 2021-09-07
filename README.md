@@ -1,5 +1,5 @@
 # can-bitcoin-bring-palestine-freedom-
-Tradução para PT-BR
+Texto Original
 
 
 Can Bitcoin Bring Palestine's Currency of Freedom?
